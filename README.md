@@ -1,0 +1,5 @@
+- 👋 Hola, yo soy @ttinajero
+- 👀 estoy interesado en todo lo relacionado con programación e IA.
+- 🌱 Principalmente sigo y sigo aprendiendo python y sus infinitas aplicaciones en el mundo real.
+- 💞️ No soy muy colaborador en este portal pero definitivamente me gusta el trabajo en equipo. 2  cabezas piensan mejor que una, siempre.
+- 📫 Me pueden encontrar en twitter como @ttinajero
